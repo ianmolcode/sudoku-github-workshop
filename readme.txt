@@ -33,4 +33,4 @@ Anant Bhandari
 Anant bhaiya GOD OP
 arnav bhaiya 
 
-DSA is doing gud job!
+DSC is doing gud job!
