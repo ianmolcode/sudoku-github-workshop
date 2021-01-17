@@ -1,2 +1,0 @@
-# Madara Uchiha
-## shisui
