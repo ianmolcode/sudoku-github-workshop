@@ -18,12 +18,7 @@ Soumili Tapadar4:54 PM
 Soumili
 prakhar4:54 PM
 prakhar
-Mayank Singh4:54 PM
-Mayank
-devrata puri4:54 PM
-nahi hai shauk
-Divyansh Sharma4:54 PM
-Divyansh Sharma
+
 Shimpii Rawat4:54 PM
 Shimpii rawat
 Rahul Danu 19ma334:54 PM
